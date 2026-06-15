@@ -1,20 +1,6 @@
-okay so this person is fucking weird cause why tf are they copying me like that? thats fucking gross behavior
-
-their github: (same bio that i made for myself, before i changed it to add crosses. -that was oct 20th.)
-
-<img width="445" height="790" alt="image" src="https://github.com/user-attachments/assets/61b25653-04f0-445e-8317-b5cc54001580" />
-
-
+<p align="center"><img width="500" height="350" alt="EE853612-329C-4213-B034-C3B114DA04CE" src="https://github.com/user-attachments/assets/aa66e0d4-c124-4922-9bf3-6beffc232933" />
  
-their insta: (same handle as mine just changed around.) 
 
-<img width="708" height="245" alt="image" src="https://github.com/user-attachments/assets/f0c0cc34-82f9-48e4-ad9e-4af4e25f0cf6" />
-
- 
- 
-  
-their pony: (last time i saw them.)
-
-<img width="450" height="159" alt="image" src="https://github.com/user-attachments/assets/3cb8a64a-148e-4201-83df-c5bd46960369" />
-
+<p align="center"> ︵‿𝜗℘‿"𝒾𝓃 𝓂𝓎 𝓇𝑒𝓈𝓉𝓁𝑒𝓈𝓈 𝒹𝓇𝑒𝒶𝓂𝓈, 𝒾 𝓈𝑒𝑒 𝓉𝒽𝒶𝓉 𝓉𝑜𝓌𝓃. 𝓈𝒾𝓁𝑒𝓃𝓉 𝒽𝒾𝓁𝓁. 𝓎𝑜𝓊 𝓅𝓇𝑜𝓂𝒾𝓈𝑒𝒹 𝓂𝑒 𝓎𝑜𝓊’𝒹 𝓉𝒶𝓀𝑒 𝓂𝑒 𝓉𝒽𝑒𝓇𝑒 𝒶𝑔𝒶𝒾𝓃 𝓈𝑜𝓂𝑒𝒹𝒶𝓎.. 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓃𝑒𝓋𝑒𝓇 𝒹𝒾𝒹. 𝓌𝑒𝓁𝓁, 𝒾’𝓂 𝒶𝓁𝑜𝓃𝑒 𝓉𝒽𝑒𝓇𝑒 𝓃𝑜𝓌… 𝒾𝓃 𝑜𝓊𝓇 '𝓈𝓅𝑒𝒸𝒾𝒶𝓁 𝓅𝓁𝒶𝒸𝑒'… 𝓌𝒶𝒾𝓉𝒾𝓃𝑔 𝒻𝑜𝓇 𝓎𝑜𝓊… 𝓌𝒶𝒾𝓉𝒾𝓃𝑔 𝒻𝑜𝓇 𝓎𝑜𝓊 𝓉𝑜 𝒸𝑜𝓂𝑒 𝓉𝑜 𝓈𝑒𝑒 𝓂𝑒... 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓃𝑒𝓋𝑒𝓇 𝒹𝑜.. 𝒶𝓃𝒹 𝓈𝑜 𝐼 𝓌𝒶𝒾𝓉, 𝓌𝓇𝒶𝓅𝓅𝑒𝒹 𝒾𝓃 𝓂𝓎 𝒸𝑜𝒸𝑜𝑜𝓃 𝑜𝒻 𝓅𝒶𝒾𝓃 𝒶𝓃𝒹 𝓁𝑜𝓃𝑒𝓁𝒾𝓃𝑒𝓈𝓈.".ೃ࿔
+<p align="center">♊︎
 
