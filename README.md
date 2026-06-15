@@ -1,4 +1,4 @@
-okay so this person is fucking weird cause why tf are they copying me like that? thats fucking gross stalker behavior
+okay so this person is fucking weird cause why tf are they copying me like that? thats fucking gross behavior
 
 their github: (same bio that i made for myself, before i changed it to add crosses. -that was oct 20th.)
 
