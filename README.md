@@ -1,6 +1,6 @@
-<p align="center"><img width="500" height="350" alt="EE853612-329C-4213-B034-C3B114DA04CE" src="https://github.com/user-attachments/assets/aa66e0d4-c124-4922-9bf3-6beffc232933" />
- 
 
+<p align="center"> <img width="1000" height="200" alt="tumblr_33b6221c8d8d8bfa3a59e909ee334c26_cc562a37_1280" src="https://github.com/user-attachments/assets/6484cb6c-e5ae-47df-be3a-c476e7ab40e8" />
+<p align="center"> <img width="98" height="34" alt="tumblr_c41c66ef5f073d84c0626cad8bcb769b_3a00ea03_100" src="https://github.com/user-attachments/assets/0f5a2557-4849-4765-ade2-52e53115b797" /> <img width="320" height="320" alt="tumblr_3e6e2f5de4d4281a4a373765e5841424_0283c8ff_400" src="https://github.com/user-attachments/assets/7d124ac2-44a8-4098-a8be-b85d5f116d0f" /> <img width="98" height="34" alt="tumblr_c41c66ef5f073d84c0626cad8bcb769b_3a00ea03_100" src="https://github.com/user-attachments/assets/0f5a2557-4849-4765-ade2-52e53115b797" />
 <p align="center"> ︵‿𝜗℘‿"𝒾𝓃 𝓂𝓎 𝓇𝑒𝓈𝓉𝓁𝑒𝓈𝓈 𝒹𝓇𝑒𝒶𝓂𝓈, 𝒾 𝓈𝑒𝑒 𝓉𝒽𝒶𝓉 𝓉𝑜𝓌𝓃. 𝓈𝒾𝓁𝑒𝓃𝓉 𝒽𝒾𝓁𝓁. 𝓎𝑜𝓊 𝓅𝓇𝑜𝓂𝒾𝓈𝑒𝒹 𝓂𝑒 𝓎𝑜𝓊’𝒹 𝓉𝒶𝓀𝑒 𝓂𝑒 𝓉𝒽𝑒𝓇𝑒 𝒶𝑔𝒶𝒾𝓃 𝓈𝑜𝓂𝑒𝒹𝒶𝓎.. 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓃𝑒𝓋𝑒𝓇 𝒹𝒾𝒹. 𝓌𝑒𝓁𝓁, 𝒾’𝓂 𝒶𝓁𝑜𝓃𝑒 𝓉𝒽𝑒𝓇𝑒 𝓃𝑜𝓌… 𝒾𝓃 𝑜𝓊𝓇 '𝓈𝓅𝑒𝒸𝒾𝒶𝓁 𝓅𝓁𝒶𝒸𝑒'… 𝓌𝒶𝒾𝓉𝒾𝓃𝑔 𝒻𝑜𝓇 𝓎𝑜𝓊… 𝓌𝒶𝒾𝓉𝒾𝓃𝑔 𝒻𝑜𝓇 𝓎𝑜𝓊 𝓉𝑜 𝒸𝑜𝓂𝑒 𝓉𝑜 𝓈𝑒𝑒 𝓂𝑒... 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓃𝑒𝓋𝑒𝓇 𝒹𝑜.. 𝒶𝓃𝒹 𝓈𝑜 𝐼 𝓌𝒶𝒾𝓉, 𝓌𝓇𝒶𝓅𝓅𝑒𝒹 𝒾𝓃 𝓂𝓎 𝒸𝑜𝒸𝑜𝑜𝓃 𝑜𝒻 𝓅𝒶𝒾𝓃 𝒶𝓃𝒹 𝓁𝑜𝓃𝑒𝓁𝒾𝓃𝑒𝓈𝓈.".ೃ࿔
-<p align="center">♊︎
-
+ <p align="center"> ♊︎ 
+<p align="center"> <img width="400" height="72" alt="tumblr_29600d89d35672aa01058c4668b997db_f01207c9_500" src="https://github.com/user-attachments/assets/434dd32f-8f57-48d8-ae7b-d0775a02143a" />
